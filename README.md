@@ -5,6 +5,5 @@
 - 💞️ I’m looking to collaborate on bigger projects like information systems etc.
 - 📫 How to reach me:
   - Email: martin.davidik@email.cz
-  - Facebook: https://www.facebook.com/diaboy96/
   - LinkedIn: https://www.linkedin.com/in/martindavidik/
   - Website: www.martindavidik.cz
